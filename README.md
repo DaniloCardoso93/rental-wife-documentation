@@ -1,1 +1,0 @@
-# rental-wife-documentation
